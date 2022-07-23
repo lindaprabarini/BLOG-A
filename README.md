@@ -1,3 +1,3 @@
-# RMIKA
+# RMIK
 
 by Linda Prabarini
